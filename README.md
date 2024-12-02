@@ -1,4 +1,4 @@
-- 👋 Hi, I’m vj
+- 👋 Hi, I’m Vijay
 - 👀 I’m interested in everything 
 - 🌱 I’m currently learning to live
 - 💞️ I’m looking to collaborate on life
